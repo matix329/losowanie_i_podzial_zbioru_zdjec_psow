@@ -1,0 +1,1 @@
+# losowanie_i_podzia-_zbioru_zdjec_psow
